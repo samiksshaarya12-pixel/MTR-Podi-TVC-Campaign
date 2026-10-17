@@ -23,4 +23,3 @@ My responsibilities included:
 ## Skills
 Account Management · Client Coordination · Production Coordination · Regional Campaign Adaptation · Brand Communication
 
-*This case study presents the campaign concept and my role. Campaign performance figures are not included.*
